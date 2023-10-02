@@ -2,6 +2,8 @@
 
 - ✨ Glad you came.  Hope you have a great day! ✨
 
+[Contact](www.linkedin.com/in/joseph-loar-39ba981b3)
+
 <!--
 - 👀 🌱 💞️ 📫 
 
